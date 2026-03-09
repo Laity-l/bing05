@@ -2,7 +2,7 @@
 - 👀 Interested in play comeputer games.
 - 🌱 Currently learning English.
 - 💞️ Looking to collaborate on she.
-- 📫 How to reach me 1991882314@qq.com.
+- 📫 How to reach me lhyyyalyj700@gmail.com.
 
 <!---
 bing05/bing05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
