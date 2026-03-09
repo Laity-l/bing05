@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Liang Hongyu😂😂.
-- 👀 I’m interested in play comeputer games.
-- 🌱 I’m currently learning English.
-- 💞️ I’m looking to collaborate on she.
+- 👀 Interested in play comeputer games.
+- 🌱 Currently learning English.
+- 💞️ Looking to collaborate on she.
 - 📫 How to reach me 1991882314@qq.com.
 
 <!---
